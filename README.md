@@ -1,0 +1,4 @@
+# IT_ELECTIVE_2_BSIT31E1_PREFINAL_EXAM_Reales_Jonnidel
+
+**Name:** Reales, Jonnidel P.  
+**Class and Section:** BSIT 31E1
